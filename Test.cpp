@@ -1,5 +1,0 @@
-/*vi
-ugiudsgjhrwoiih
-oih
-oi
-*/
